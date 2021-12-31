@@ -7,3 +7,8 @@
 Hi, I'm Pasha! I love code, and I'm a little lazy I will learn everything I need
 for FrontEnd, and I will go to my dream job with growth and communication with
 one-minded people!!! Good luck to everyone!
+
+## Education
+
+In 2015 I graduated from the
+[Krivoy Rog National University](http://www.knu.edu.ua/)
