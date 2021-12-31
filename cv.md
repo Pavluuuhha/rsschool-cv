@@ -12,3 +12,9 @@ one-minded people!!! Good luck to everyone!
 
 In 2015 I graduated from the
 [Krivoy Rog National University](http://www.knu.edu.ua/)
+
+## Contacts
+
+- E-mail: pavluuuhha@yandex.ru
+- Telegram: @pavluuuhha
+- Git: [Pavluuuhha](https://github.com/Pavluuuhha)
