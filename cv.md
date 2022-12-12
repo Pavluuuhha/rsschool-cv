@@ -1,4 +1,4 @@
-![Моя Аватарка](https://scontent-arn2-1.xx.fbcdn.net/v/t1.6435-9/45347565_2118056248251802_5205772753872879616_n.jpg?_nc_cat=111&ccb=1-5&_nc_sid=09cbfe&_nc_ohc=IHRssCFJmtkAX84rOA1&_nc_ht=scontent-arn2-1.xx&oh=00_AT_pqlvu4XQSnbqEYJiP5fXvafHB5FVjVcvdFuIiN-aUig&oe=61F231CF)
+![Моя Аватарка](https://sun9-east.userapi.com/sun9-26/s/v1/if1/iTPu1XrzHqOIy087N_E_VdUsOw8-NOZa_jInEIGpcDDKC6rEyB-Ff8iRyU8nUM1C64bYiLg7.jpg?size=2048x1152&quality=96&type=album)
 
 # Khodakovskyi Pashka
 
